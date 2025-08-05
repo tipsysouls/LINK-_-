@@ -1,2 +1,1 @@
-# LINK-_-
-idkman
+hi uhmuhmuhm here https://rentry.co/imsotiredbro
